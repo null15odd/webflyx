@@ -1,0 +1,5 @@
+* "Make the Force be with you"
+* "A great man doesn't seek to lead. He's called to it"
+* "Mine name Jar Jar"
+* "Blah-Blah"
+* "Love this seriece"
